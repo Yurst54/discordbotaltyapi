@@ -1,6 +1,1 @@
-BU BOT Elwasy#3071'e AİTTİR İZİNSİZ PAYLAŞILMASI YASAKTIR!!!!!!
-
-
-
-
-KOMUTLAR CODARE SUNUCUSUNA AİTTİR  İZİNSİZ PAYLAŞILMASI YASAKTIR!!!!!!!
+Elwasy#3531 (407240241209147393) tarafından CodAre (495518657636466699) discord sunucusunda paylaşılmıştır.
